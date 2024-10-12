@@ -1,4 +1,4 @@
-# Team15_BruhKet
+# Team15_|Bruh-Ket>
 
 ## Phase 1: Reading and Planning
 
